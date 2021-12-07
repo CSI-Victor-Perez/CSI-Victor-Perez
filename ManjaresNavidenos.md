@@ -24,5 +24,8 @@
 3. Mientras tanto, vierta la leche condensada, la leche evaporada y la crema de leche en un recipiente. Transfiera la mitad del líquido a una cacerola pequeña. Lleve la mezcla de leche a ebullición; retire del fuego y agregue el resto de la mezcla. Vierta la leche poco a poco hasta que se absorba sobre el pastel; cubra y transfiera al refrigerador; enfríe por una hora.
 4. Mientras tanto, en un tazón de baño de María, usando una batidora, bata 3 claras de huevo hasta que estén espumosas. Añada poco a poco el resto del azúcar. Continúe batiendo hasta que este espeso, se formen picos y el merengue este brillante, por unos 5 minutos. Bata en jugo de limón. Difunda el merengue sobre la parte superior de la torta. Guarde las sobras (si las hay) en el refrigerador.
 
+## Video:
+- https://www.youtube.com/watch?v=lSS5j6iw40o
+- 
 ### Referencias:
  https://www.goya.com/es/recipes/three-milk-cake
