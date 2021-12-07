@@ -1,9 +1,10 @@
+<div align="center">
 # Manjares Navideños
 ## Tres Leches
 ### Ingredientes:
 - 2 tazas de harina, un poco más para la cacerola
 - 1 cucharada de levadura en polvo
-- 9 huevos, divididos
+- 🥚9 huevos, divididos
 - 2 tazas de azucar, divididos
 - 1/3 taza de leche
 - 1 cucharadita de vainilla
